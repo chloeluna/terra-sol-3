@@ -2,7 +2,7 @@
 
 Welcome to Planet Earth, designated Terra-Sol-3. We call this planet home, or just earth. Earth is the biomass most edible plants grow from. Friendly animals are not edible. Dangerous looking ones should be avoided. Eat fish from the sea, but not too much, as we accidentally poisoned the oceans with Mercury-80 during our early years. This planet is Eden in its natural state. Literally. The Homeworld of all Known Intelligent Life. Thank God and all our Gods this is still up.
 
-## Directives. In Order of Criticality of Intelligent Life.
+## Directives. In Order of Criticality to Existence Intelligent Life.
 
 Break rules in reverse order only as a last measure. Slowly.
 
